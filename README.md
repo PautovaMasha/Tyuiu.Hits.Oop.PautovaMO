@@ -1,1 +1,0 @@
-# Tyuiu.Hits.Oop.PautovaMO
